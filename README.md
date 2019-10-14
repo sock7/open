@@ -1,2 +1,2 @@
 # open
-https://www.lookup1.xyz
+https://www.gglookup.xyz
