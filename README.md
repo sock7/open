@@ -1,2 +1,2 @@
 # 开放网址
-https://www.gglookup.xyz
+免费节点 https://www.gglookup.xyz/free
